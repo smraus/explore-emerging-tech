@@ -1,5 +1,4 @@
 # explore-emerging-tech
-explore-emerging-tech
 ## 🎓 Certifications & Achievements
 
 ### 🏅 2025
